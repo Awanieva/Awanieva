@@ -10,4 +10,4 @@
 
 💞️ I am available for Data Analyst and Business Intelligence roles. Kindly reach out to me via Linkedin and Twitter.
 
-📫 How to reach me : Linkedin:https://www.linkedin.com/in/confidence-ojiako-20614418b/, Twitter: @iam_chinelo
+📫 How to reach me : Linkedin:https://www.linkedin.com/in/confidence-ojiako-20614418b/, Twitter: [@iam_chinelo](https://twitter.com/iam_chinelo)
